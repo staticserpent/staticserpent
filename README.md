@@ -2,11 +2,7 @@
 
 ![Image](https://github.com/user-attachments/assets/a55e9b6c-396b-458d-bff6-7503972f0e87)
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&cover_image=true&theme=novatorem&show_offline=false&background_color=325245&interchange=false&profanity=false&bar_color=f4b480&bar_color_cover=false">
-  </a>
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&cover_image=true&theme=novatorem&show_offline=false&background_color=011413&interchange=false&profanity=false&bar_color=fdc992&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡
 
