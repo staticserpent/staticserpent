@@ -3,6 +3,7 @@
 ![Image](https://github.com/user-attachments/assets/193a6d5b-79c9-4ed0-807e-e95cac1fd36e)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&cover_image=true&theme=novatorem&show_offline=false&background_color=325245&interchange=false&profanity=false&bar_color=f4b480&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&redirect=true)
+
 ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡
 
 ── .✦ 𝐂 𝐑 𝐈 𝐌 𝐒 𝐎 𝐍 / 𝐗 𝐄 𝐕 𝐎 𝐍
