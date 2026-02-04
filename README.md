@@ -4,6 +4,12 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&cover_image=true&theme=novatorem&show_offline=false&background_color=325245&interchange=false&profanity=false&bar_color=f4b480&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&redirect=true)
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lbr33ap4rwxujtbltpdlsfpubu&cover_image=true&theme=novatorem&show_offline=false&background_color=325245&interchange=false&profanity=false&bar_color=f4b480&bar_color_cover=false">
+  </a>
+</p>
+
 ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡
 
 ── .✦ 𝐂 𝐑 𝐈 𝐌 𝐒 𝐎 𝐍 / 𝐗 𝐄 𝐕 𝐎 𝐍
