@@ -1,6 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AE986DE9&width=435&lines=%22You+look+quite+divine+tonight...;...Here+among+these+vibrant+lights.%22;%E2%99%A1)](https://git.io/typing-svg)
 
-![Image](https://github.com/user-attachments/assets/e337419a-8565-457e-82ff-c1aa5b3cf589)
+![Image](https://github.com/user-attachments/assets/193a6d5b-79c9-4ed0-807e-e95cac1fd36e)
 
 ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒ ◡◡ ﹒
 
