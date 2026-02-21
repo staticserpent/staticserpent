@@ -1,1 +1,1 @@
-readme revamp because some fuckass can't resist copying me
+copied, readme revamp again onfg
